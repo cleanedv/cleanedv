@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cleanedv
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate with nobody for now
+- 📫 How to reach me krisandmate@gmail.com or flightxlauncherinc@gmail.com
